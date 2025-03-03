@@ -29,7 +29,7 @@ Many schools and workplaces restrict access to gaming websites, making it hard f
 
 Playing Cookie Clicker unblocked is as easy as baking cookies! Follow these simple steps:
 
-1. Visit the official unblocked site: 🍪 Click here to play Cookie Clicker Unblocked.
+1. Visit the official unblocked site: 🍪 Click [here](https://cookieclicker.ee) to play Cookie Clicker Unblocked.
 
 2. Start Clicking: 🖱️ Click on the big cookie to earn cookies.
 
